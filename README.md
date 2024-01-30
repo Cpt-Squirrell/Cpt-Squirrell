@@ -1,4 +1,4 @@
-Oh, look! So much space to write on! I'm @Cpt-Squirrell (\*blush\*) and live in middle Sweden.
+Oh, look! So much space to write on! I'm Arctifox! 👋
 
 Been writing C++ since 2018 and been tech-savy since ~2010. That's the better part of my life for reference.
 Gamer at heart and inventor in mind. Or at least I like to think of my clapping monkey brain as such.
